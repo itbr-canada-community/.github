@@ -17,6 +17,7 @@ Toda comunicação feita dentro dos canais da comunidade devem seguir de perto o
 ## Organizadores
 
 [Fernando Silva](https://www.linkedin.com/in/fernando-csilva/)
+
 [Felix Coutinho](https://www.linkedin.com/in/felixcoutinho/)
 
 ### In memoriam
